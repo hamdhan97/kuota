@@ -1,0 +1,2 @@
+# kuota
+CYBER TEAM TEGAL
